@@ -1,7 +1,7 @@
 # Poems
 A lifelong lamentation. Bitten um tausende Beichte.
 
-The Puppeteer
+[The Puppeteer](thepuppeteer.md)
 
 Webs of Copper
 
