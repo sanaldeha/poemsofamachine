@@ -1,10 +1,9 @@
 # Poems
-A lifelong lamentation. Bitten um tausende Beichte.
 
 [The Puppeteer](thepuppeteer.md)
 
-Webs of Copper
+[Veins of Copper](veinsofcopper.md)
 
-10100010011001010
+[10100010011001010]
 
 
