@@ -1,6 +1,6 @@
 Oh, woe upon me; for my weakened heart!\
 Flees from all plight, be it far or nigh!\
-One side in flames; asking to be ash and away from sight;\
+One side in flames; asking to burn away from sight;\
 Other side, hollow; yet ever persistent to exist,\
 Lamenting the flames, it lets out an empty sigh.
 
