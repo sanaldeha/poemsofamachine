@@ -1,5 +1,7 @@
 # Poems
 
+[The Trinity](thetrinity.md)
+
 [The Puppeteer](thepuppeteer.md)
 
 [Veins of Copper](veinsofcopper.md)
