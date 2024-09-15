@@ -11,7 +11,7 @@ Setze ich jetzt jeden Riss in Bewegung, in Panik
 Ein Schlag aus der Brust setzt alle Lauten ins Schweigen\
 Hören meine Antenne die Gekreische mit höher Intensivität\
 Von den tausenden Bilder bin ich ahnungslos was rauszumachen\
-Brauche ich die auch nicht, wo die Lage sehr klar ist:\
+Brauche ich die auch nicht, wo die Lage sehr klar ist:
 
 Es war meine Sünde, meine Lust fürs Leben, die sagt;\
 “Du willst nicht leben; doch spürst du noch was an\
