@@ -1,7 +1,7 @@
 # Das Ungeziefer
 
 Kurven von Unschärfen erweitern sich wieder\
-Begleitet mit Weißen aus weichen Federn\
+Begleitet von Weißen aus weichen Federn\
 In dem grotesken Gefäß sind jetzt tausende Lichter\
 Unfähig aufzustehen, merke ich nicht den Unsegen
 
@@ -18,5 +18,5 @@ Brauche ich die auch nicht, wo die Lage sehr klar ist:
 Es war meine Sünde, meine Lust fürs Leben, die sagt;\
 “Du willst nicht leben; doch spürst du noch was an\
 Du willst dich nicht bewegen; doch alles erfahren\
-Falls du das wann auch immer klagen, denk dran\
+Falls du das wann auch immer klagst, denk dran\
 Durch dieses erbärmliches Gefäß bist du gepriesen!"
