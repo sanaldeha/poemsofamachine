@@ -1,4 +1,4 @@
-# Celebration of Departure (for a decayed Angel)
+# Celebration of Departure
 
 A lifeless sunlight fills this cursed room,\
 Where no life could ever dare to bloom;\
