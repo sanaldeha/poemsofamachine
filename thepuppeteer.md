@@ -3,7 +3,7 @@
 In a night where life has vanished\
 In darkness which dark souls are banished\
 Above me lurks a deeper shadow now\
-With silver lines lighting up this shed
+With silver lines lighting up this hollow shed
 
 
 In my desperation, my beloved companion\
