@@ -1,6 +1,6 @@
 # Poems
 
-[Celebration of Departure (for a decayed Angel)](celebrationofdeparture.md)
+[Celebration of Departure](celebrationofdeparture.md)
 
 [Should My Heart Ever Speak](shouldmyheartspeak.md)
 
