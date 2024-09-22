@@ -1,5 +1,7 @@
 # Poems
 
+[celebrationofdeparture.md](Celebration of Departure(for a decayed Angel)
+
 [Should My Heart Ever Speak](shouldmyheartspeak.md)
 
 [Das Ungeziefer](ungeziefer.md)
