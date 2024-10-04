@@ -1,8 +1,8 @@
 # Morning Walk
 
-My troubled mind, awoken to a surprising morning;\
-And as my silent heart starts fervently beating.\
-I await at the promised place, and my guts;\
+My troubled mind, awoken to a surprising morning,\
+And my silent heart, condemned to a fervent beating;\
+I await at the promised place, and my guts\
 Deny me of enjoyment of any earthly delicacies;\
 For my being denies all that is not your grace.
 
@@ -21,7 +21,7 @@ For if you are not in my gaze, any step forward is futile.
 As I part with you with promises and little teases,\
 Everything inside me weighs heavier than my sighs.\
 I climb this invisible wall, unable to breathe with pace;\
-In the hopes of that I could convey these words in grace;\
+In the hopes of that I could convey these words in grace\
 and reach out to you with a smile on my face.
 
 
