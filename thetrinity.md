@@ -8,7 +8,7 @@ Lamenting the flames, it lets out an empty sigh.
 
 Oh, rejoice all; for my blessed mind!\
 Lends repentance to the sinners of boredom;\
-With it's witty jokes and manners lacking seldom,\
+With its witty jokes and manners lacking seldom,\
 Yet for the flowers of evil of others it is blind;\
 Time to make way for own my garden; would you mind?
 
