@@ -13,7 +13,7 @@ Vor ihnen steht Der Wirbel, ein zerbrochener Traum drin.
 Auf dieser Welt existiert nichts Besonderes, weißt es jeder bereits;\
 Puppen mit Gedanken, angekettet von der Wahrheit; standen reglos,\
 Idioten mit brennenden Herzen; ertrunken in Idealen; waren leblos.\
-Fragmenten vom Spiegel der Welt,die angefasst weh tun; lasse ich los.
+Fragmenten vom Spiegel der Welt, die angefasst weh tun; lasse ich los.
 
 Es ist nichts Besonderes, muss ich noch mehr sagen?\
 Was kann ein Verrückter, wenn die Sterne und Blumen ihm fehlen?\
