@@ -3,7 +3,7 @@
 Es gibt nichts Besonderes, sag' ich ehrlich,\
 Tremores meiner Enttäuschung krachen mir das Herz.\
 Durch die Rissen kommt ein ewig herrliches Licht durch.\
-Es brennt die Seilen, die unheilige Glocke halten hoch.
+Es brennt die Seilen, die die unheilige Glocke halten hoch.
 
 An mir ist nichts Besonderes, sag' ich immer;\
 Ein Narr mit großer Höhle drin, spiegelt alles wider.\
