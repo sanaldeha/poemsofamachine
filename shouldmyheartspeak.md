@@ -1,7 +1,7 @@
 # Should My Heart Speak Again
 
 Should my heart ever speak again,\
-Grind it's cords until they are grain!\
+Grind its cords until they are grain!\
 Dipped in hypocrisy, oblivious to any lie,\
 Charms of life, made out of paper; ever vile.
 
@@ -12,7 +12,7 @@ Lest it reject all, it is forever a slave.
 
 Should I ever speak my mind again,\
 May it be a firework; waning in vain.\
-Decorating my wall with it's vibrant color;\
+Decorating my wall with its vibrant color;\
 In destruction only can it find splendor.
 
 Should I never utter a word again;\
