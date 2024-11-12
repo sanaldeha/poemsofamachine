@@ -17,7 +17,7 @@ Fragmenten vom Spiegel der Welt, die angefasst weh tun; lasse ich los.
 
 Es ist nichts Besonderes, muss ich noch mehr sagen?\
 Was kann ein Verrückter, wenn die Sterne und Blumen ihm fehlen?\
-Die Herzflattern halten; zittert jetzt nur den Boden mit Distortion!\
+Die Herzflattern halten; zittert jetzt nur der Boden mit Distortion!\
 Lächeln! Lächeln, bis ich selbst glaube; dass ich nicht in Verzweiflung bin!\
 Tanzen! Tanzen, bis alle Bindungen mit anderen zerrissen sind!
 
