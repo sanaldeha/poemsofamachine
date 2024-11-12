@@ -2,7 +2,7 @@
 
 Heavy gasps of air scrape the sick yellow walls,\
 A dark room filled with rusty weights and chains.\
-As my mind is blinded with a frienzied haze;\
+As my mind is blinded with a frenzied haze;\
 I tremble; a scene of hell stands before my gaze.
 
 Khaki spectors stand watch amidst the twilight,\
