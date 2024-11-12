@@ -5,7 +5,7 @@ A dark room filled with rusty weights and chains.\
 As my mind is blinded with a frenzied haze;\
 I tremble; a scene of hell stands before my gaze.
 
-Khaki spectors stand watch amidst the twilight,\
+Khaki specters stand watch amidst the twilight,\
 Before a dim light stands a flower of shadows:\
 Swirling endlessly, prideful of their blight;\
 Heart-tearing screams echo through the night.
