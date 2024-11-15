@@ -2,7 +2,7 @@
 
 A world in delightful sepia hue opens itself,\
 To the Child; that which had not cried for relief.\
-Kisses of red on his cheeks, he lit up the shaded garden\
+Kisses of pink on his cheeks, he lit up the shaded garden\
 With his bright smile, he plants a seed; oblivious to his sin;\
 Ennui takes root in his heart; shed is the blood of his kin;\
 From this Garden, he is banished with the Mark of Cain.
