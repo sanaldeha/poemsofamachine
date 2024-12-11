@@ -1,5 +1,7 @@
 # Poems
 
+[Helping Hands](helpingHands.md)
+
 [Three Gardens and the End](threeGardensandtheEnd.md)
 
 [Nichts Besonderes (oder Disco Inferno)](nixbesonderes.md)
