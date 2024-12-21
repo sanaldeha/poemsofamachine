@@ -16,7 +16,7 @@ Through the smoke and mirrors, I am revealed:\
 A black star, with no sign of being satisfied.
 
 I color the sight of others with gray paint,\
-As they disturb my work; I offer a faint smile:\
+As they disturb my work, I offer a faint smile:\
 But my audience applauds, for destruction is a delight\
 For those who watch, far away from the event horizon.
 
