@@ -1,5 +1,7 @@
 # Poems
 
+[Smoke and Mirrors](smokeandmirrors.md)
+
 [Helping Hands](helpingHands.md)
 
 [Three Gardens and the End](threeGardensandtheEnd.md)
