@@ -1,5 +1,7 @@
 # Poems
 
+[Interrupted Blossoming](interruptedBlossoming.md)
+
 [Smoke and Mirrors](smokeandmirrors.md)
 
 [Helping Hands](helpingHands.md)
