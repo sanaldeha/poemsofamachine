@@ -1,5 +1,7 @@
 # Poems
 
+[Sinners in Blight](sinnersInBlight.md)
+
 [Interrupted Blossoming](interruptedBlossoming.md)
 
 [Smoke and Mirrors](smokeandmirrors.md)
